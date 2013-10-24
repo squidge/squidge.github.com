@@ -1,0 +1,66 @@
+---
+layout: post
+title: "Undiagnosed"
+tags: [personal, logan]
+---
+{% include JB/setup %}
+
+When we first found out we were expecting a baby back in March 2010 my wife and I were over the moon!. We quickly got used to the idea of our impending parenthood. For the first three months my wife did have a text book pregnancy – a bit of sickness but other than that nothing out of the ordinary. Three months came and we eagerly prepared for the first viewing of our little one.
+
+Although our baby seemed fine and had a strong heart beat, it was also very fast, ‘nothing to worry about’ they said, it happens in early pregnancy sometimes. We were relieved they booked us in for a repeat scan in 3 weeks time and we went home with the first pictures of our little one. They told us our baby would be born 9th November 2010.
+
+Three weeks later we went back but this time there was more. They also found ‘increased fluid’ at the back of our little one's neck. We were told, this coupled with the fast heart rate was serious, mostly likely a chromosomal disorder like Downs or Edwards Syndrome or possibly a serious heart defect. 
+
+The odds were bad and stacked up against us and our baby.
+
+We were offered a termination there and then, we said no and so they offered us an invasive procedure called CVS. We agreed and my wife was taken in that very day. I remember being so scared, scared for our baby, scared what they might find. Scared if my wife moved even an inch the needle could slip. We held our breath as they took the small amount of fluid from around our baby. It was done, now we had to wait. It was the longest three days of our lives.
+
+Three days later the result arrived ‘all normal’. We actually asked ‘are you sure your sure?’ - The lady laughed and said ‘absolutely positive, chromosomes all normal’. She also asked if we would like to know if it was a boy or a girl – well duh of course we do! So at 18 weeks of pregnancy we found out we were having a little boy and from that moment on, that he was also a fighter.
+
+However, we didn't have time to relax as my wife quickly became very sick, she used to vomit morning, noon and night but our little man seemed 'ok' and he was now bouncing around inside my wife's belly. At 21 weeks we went for another scan, this time a specialist scan, to check out little boy's heart and to do his anomaly scan. The scan revealed a potentially serious heart condition called coarctation of the aorta but they assured us that if he was born in a specialist unit they could operate immediately. They had a 90% success rate and did this type of operation as ‘routine.’ We were upset but also happy it could be fixed. By this point we were prepared for anything, our little one liked to surprise us and he did. We went for the anomaly scan next –  two arms, two legs, everything seemed there except his right kidney, yes, our little mystery boy only had the one kidney. We were offer once more the option to terminate the pregnancy as there were 'concerns' about our boy surviving the pregnancy. We said no again, went home very upset but knowing that if our little one was still kicking he surely wanted to come to this world.
+
+Weeks went by, my wife had a feeling things hadn't improved for our little one, so at 30 weeks, we discovered he seemed to have stop growing and was falling off the growth chart. We were refereed to St  Thomas’ hospital in Lambeth (which is where our little boy would be born) where they had some of the countries best heart surgeons and cardiologists – it would be a hospital that we would get to know very very well.
+
+On the 20th September 2010, we went for a booked appointment and scan at St Thomas’ hospital to get to know the midwives and book in for an induction to insure he was born in the right place to meet his needs. The midwives were lovely and we were booked in for the end of October. We went off for our scan – my wife was having a particularly bad day and had a killer headache and suddenly she was vomiting in a bucket in the hospital while we were still waiting to be seen. The consultant got inmediately concerned as my wife was so sick and our baby’s heart rate was fast, she wanted a continuos scan done there at the hospital so we had an up-to date one. We went to the day assessment unit and the wife was now so sick that she could barley sit up. We waited for 5 hours in the waiting room to do the test. By the time they did it my wife was very dehydrated and our little boy's heart beat was going up and down like a yo-yo. She was admitted and given fluids all night, nurses and doctors came to check our little boy's heart beat every 40 minutes, as time went by they were getting concerned things were not getting any better so the consultant was called. He said they couldn't help him while he was still inside, he needed to come out. The consultant had to move fast to put a full cardiac team together to wait for our baby's arrival.
+
+4 hours later, on the 21st of September, Logan was born via cesarean section weighing 1.5kg (3lb 3oz) and it was back there and then when they real fight began.
+
+Logan couldn’t breath on his own and was intubated at birth. He was small but gorgeous. They inmediately  took him to the NICU where he was settled in, I never left his side and a wonderful nurse Jenny looked after him. As my wife recovered from surgery the full extent of Logan’s heart condition was being assessed by a team of cardiologists – unfortunately the doctors fears were confirmed, Logan did have a coarctation of the aorta as well as a bicuspid aortic valve and also a ventricular septal defect. He needed open heart surgery; however, they were concern he wouldn't survive the surgery so they decided to  put him on some medication to keep his heart stable. They told us to relax, he seemed fine, as night came, it became obvious to his nurse and consultant that Logan's heart wasn’t the only worry. He hadn’t pooed and his tummy was becoming very descended.
+
+Tests were done and we were given some blowing news –  Logan had malrotation, a potentially life threatening gut condition in which the whole of Logans bowel had formed and settled back to front.
+
+We were devastated.
+
+We were told by the surgeon that Logan was in a cross-road, without a tummy surgery he would die and that given his condition sucess rate was at 10% top and the recovery would be very long and painful for him should we decide to proceed. Surgery wasn't our best option, it was our only option.
+
+So at less than 24 hours old, Logan had his first major surgery, we spent the next 4 hours sitting in our hospital room in silence, no word was said. The phone rang, amazingly Logan made it.
+
+He was left with a stoma (a small piece of bowel left outside of his body) but his gut was healthy and he lost very little. All this was good news. In time, his stoma would be reversed and he should have a healthy, normal gut system but that was a long way ahead of us, his gut would need to rest for months we were told so it was most likely we would go home with the stoma. We didn’t care we were just happy he was strong enough to make it.
+
+Logan started his long recovery, however, because of amount of pain, they couldn't give him more morphine and his heart became very unstable, the recovery wasn't helping his heart and his heart wasn't helping his recovery. It was time for his second major surgery at only 1 week old. The operation had an 80% success rate and 20% mortality in 'normal' conditions but Logan wasn't, so we tried not to think of it, our boy was a fighter and bact then he had defied all the odds.
+
+Logan would spend the night in the intensive care unit at the children’s hospital as he would be too fragile to move. We kissed him goodbye and put all our trust in the heart surgeons. It’s the hardest thing to put all our trust in complete strangers when they are dealing with the most precious thing in your life but we knew he would die without this operation, this was giving him the best start.
+
+Logan was in surgery for 5 hours. All sorts of things went through my head, the wait is agonising, this time we were surounded by family and friends, and still we felt like we were in a cold cage where nothing could warm us up. Eventually we were given the phone call to say the surgery had gone very well, Logan was stable but the next 24 hours were critical for him.
+
+Logan progressed well and within 2 days was breathing on his own, he also found his lungs too screaming for milk! However, he was still not allowed to eat so instead was given nutrition through his new line TPN (Total parenteral nutrition) as his tummy still was too sensitive to have anything else. This kept Logan healthy but didn’t stop him feeling hungry. luckily he didn’t have to wait long and about 4 days later he had his first taste of milk – 1ml every 3 hours. I still laugh now about 1 ml and how he really enjoyed it!.
+
+He recovered well and was moved back to NICU. Logan came on leaps and bounds and was moved out of the NICU and into HDU where mummy and daddy had a lot more freedom with him – he soon got used used to lots of cuddles! His milk was being increased and his TPN was stopped and replace with just clear fluids. He did so well he was moved again to SCBU and the doctors even dared to talk about him going home. Then things began to deteriorate a little Logan’s routine ‘heal prick’ test came back. It showed he had an under active thyroid. Logan was to be seen and checked over by a endocrinologist. But that wasn’t all. He was also struggling to maintain his blood sugar level, they were becoming dangerously low and unfortunately he had to be put back onto TPN. He was moved back to HDU. We were devastated – so close to going home and now a massive blow. Logan took it all in his stride and began becoming more alert and responsive to us.
+
+Months went by and Logan’s blood sugars were still up and down and he began to not tolerate his milk so we found ourselves waiting until Logan was strong enough to have his stoma reversed. It happened when Logan was 4 1/2 months old – his third major surgery and a trip back to intensive care. He did amazingly well and was back in HDU the very next day. He really did come on – he tolerated his milk, pooed lots and maintained his blood sugars. Finally after 3 broviac lines he was wire free and he was able to get his first taste of being off the unit. We took him for walks around the hospital. At first he hated it, too much hustle and bustle as he was used to his quiet room but as the weeks went by he loved to go out with us at lunch times.
+
+Finally Logan was well enough to be transferred to our local hospital and so after five and a half months of being at St Thomas’ we said goodbye. Although there was nothing we wanted more than to take Logan home. Our local hospital was small and not as intense and in a way that scared us, but we soon settled in and it was a dream to be at home after having spent the past five and a half months living in a charity house near the hospital in London.
+
+Things were put in place for Logan to come home, this was really just a ‘stop gap’ as he didn’t need hospital care anymore. He was still NG tube fed and we needed to learn how to replace and deal with that. The week before we went home we found out Logan had a serious eye condition, Nystagmus.
+
+It felt like another blow. His sight was most likely “very compromised” but they needed to do more test so we had to wait and see. We didn’t let it spoil the fact that we were so close to having Logan home and we put all our energy into that.
+
+Finally in mid March, and six months and a half after he was born, Logan came home. We were over the moon to have our little man at home were he belonged.
+
+Today Logan is 3 years old. He has had over 10 more surgeries – thankfully all of them minor. Despite everything that has happened, he is a happy little boy full of life giggles and fun.
+
+Logan is severely globally developmentally delayed. He sits with minimal support, doesn’t crawl or walk, and says only a couple of words. He is painfully under weight despite eating well (pureed foods) and having in total 3 times the amount of calories an average 3 year old should have. He weighs just 8 kg for this reason, Logan now has a gastrostomy tube in the hope we can feed him some milk at night and this will help him gain weight. He is intolerant to wheat and dairy so this can be challenging when feeding him.
+
+Logan has been investigated by genetics expert and has undergone so many tests. We are taking part in the DDD (deciphering developmental disorders) project but they still have no idea what happened to him. They do know that he has some sort of genetic disorder but they have told us they may never know what it is as they have never seen a child that displays as Logan does. We have even sent his dna for tests to France, Germany and Norway but came back 'normal'. He is still a mistery to science.
+
+Neither they or us know what the future holds for Logan, we hope one day we will find out for Logan and our sakes. Until then we just enjoy him for all the joy and fun he brings and the wonderfully brave little boy that he is.
